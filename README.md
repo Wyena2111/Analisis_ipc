@@ -89,7 +89,7 @@ Este análisis permitió comprender mejor cómo las crisis económicas afectan d
 ---
 
 ## Contacto
-- LinkedIn: [Tu LinkedIn]
+- LinkedIn: [www.linkedin.com/in/wilver-m-yena-garcia-9350a22a8]
 
 ---
 
