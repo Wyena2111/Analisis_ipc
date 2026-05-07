@@ -84,13 +84,12 @@ Este análisis permitió comprender mejor cómo las crisis económicas afectan d
 ---
 
 ## Autor
-**Wilbert M. Llenas Garcia**
+**Wilver M.**
 
 ---
 
 ## Contacto
 - LinkedIn: [Tu LinkedIn]
-- GitHub: [Tu GitHub]
 
 ---
 
